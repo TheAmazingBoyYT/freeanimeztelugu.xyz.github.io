@@ -1,2 +1,2 @@
 TheAmazingBoyYT.github.io
-website
+You Don't have access! Please try again later.
