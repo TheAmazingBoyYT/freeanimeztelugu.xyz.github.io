@@ -1,2 +1,2 @@
-# freeanimeztelugu.xyz.github.io
+TheAmazingBoyYT.github.io
 website
